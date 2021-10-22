@@ -8,4 +8,4 @@
 
 
 
-Created by©https://github.com/setiawanmariyah ®All Copyrights Reserved
+Created by©https://github.com/setiawanmariyah™ ®All Copyrights Reserved
